@@ -1,2 +1,2 @@
 # Maio-Amarelo
-beba moderadamente
+CUidado ao Dirigir!
